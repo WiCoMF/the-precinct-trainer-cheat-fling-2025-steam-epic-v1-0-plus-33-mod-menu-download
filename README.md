@@ -78,7 +78,8 @@
 ---
 
 ## 📸 Превью
-![Превью трейнера](https://i.imgur.com/RANDOMIMAGE.png)
+
+![image](https://github.com/user-attachments/assets/bd9bbb0f-c8f6-47c7-91cf-70e14b88f7a4)
 
 ---
 
